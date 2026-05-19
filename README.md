@@ -1,1 +1,0 @@
-# Ventec-industries-app
